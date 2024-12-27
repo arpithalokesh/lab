@@ -1,1 +1,2 @@
 chikkamagaluru
+karnataka
